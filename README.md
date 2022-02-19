@@ -1,0 +1,2 @@
+# hatayonetimi
+hatayonetimi
